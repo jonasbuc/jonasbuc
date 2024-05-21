@@ -44,7 +44,7 @@ I believe in the power of open source and enjoy contributing to various projects
 
 ## 💡 Fun Facts
 
-- 🎸 I play the guitar and enjoy jamming to rock and blues.
+- 🎸 I play the bass and enjoy jamming to Heavy Metal mostly Bring me the Horizon.
 - 🏋️ I love Training crossfit to keep me fit.
 - 🍕 Pizza is my ultimate comfort food.
 
